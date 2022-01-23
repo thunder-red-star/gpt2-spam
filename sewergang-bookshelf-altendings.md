@@ -27,4 +27,5 @@ After they discovered the Bookshelf was gone, SewerGang is believed to have "fil
 SewerGang is still at large and no one knows if they will go back to this madness or not.<|endoftext|>TOKYO (Reuters) - Japan on Monday called for an increase in the number of women in top jobs and said it was looking at ways to increase a salary differential between men and women.
 
 Japanese Prime Minister Shinzo
-3. 
+3. BREAKING NEWS: Bookshelf Industries, the company owned by Bookstore, was bombed and destroyed by leaders of a rival company, Sewergang. It is reported that DaBestPigMaster or Karmapunk, two executives in SewerGang, put TNT into green animals named Creepers and forced them to explode on Bookshelf Industries' property. Bookstore stated that he was "upset that SewerGang took such actions against his company" and  "wanted to take this matter to court". Another security guard, Victor Santos, is said to be a member of the SewerGang, but it is unknown if this is true. DaBestPigMaster, a former member of the SewerGang, has been involved in the decision making of the online booksellers since 2010.
+Liam Hutchinson, a security guard at Bookstore, is among the alleged victims of the bombing.
