@@ -51,23 +51,23 @@ In the interview, Mr. Yoo also stated that he was "optimistic about the future" 
 In a January 2016 interview with Naver Matome, Mr. SewerGang stated that they "won't
 10. BREAKING NEWS: Bookshelf Industries, the company owned by Bookstore, was bombed and destroyed by leaders of a rival company, Sewergang. It is reported that DaBestPigMaster or Karmapunk, two executives in SewerGang, put TNT into green animals named Creepers and forced them to explode on Bookshelf Industries' property. Bookstore stated that he was "upset that SewerGang took such actions against his company" and  "I suspect that SewerGang was behind this bombing of Bookshelf Industries' warehouse" (Source: https://twitter.com/D.G.I.C/status/774418918774949104). He continued to state "I suspect that SewerGang was behind this bombing of Bookshelf Industries' warehouse." When a member of SewerGang asked why Bookshelf Industries was "a small business" (the company was around 500,000 in revenue and one in four employees were full-time employees), D.G.I.C. stated "Bookshelf Industries had a warehouse with 25,000 books and an engine with 30,000 horsepower and was a very small business in comparison to SewerGang, who had a warehouse with 1.2 million books and a four-ton engine." 
 Who Bombed Bookshelf?
-SewerGang was founded in 2001 by DaBestPigMaster and Karmapunk, two men associated with a rival company, SewerGang.  They were both arrested on charges of smuggling contraband in 2005, but later released.  DaBestPigMaster was also accused of using his relative's charity to collect large sums of cash, a practice that both SewerGang and DaBestPigMaster have been accused of.   DaBestPigMaster has always denied involvement with SewerGang and has tried to sell the charges as "personal vendetta" and "attempted extortion".  He has also claimed that "SewerGang was an evil organization" that "had me in its crosshairs".  The author of this article, however, believes that DaBestPigMaster was behind the Bookshelf bombing.  He mentions a number of meetings he had with the men, including a meeting where they discussed bombing Bookshelf Industries and "attempting to have the headquarters bombed" (Source: http://rabbithead.blogspot.com/2015/09/bookstore-bombing.html).  His article also describes the effect that Bookshelf Industries had on him and his family:
+SewerGang was founded in 2001 by DaBestPigMaster and Karmapunk, two men associated with a rival company, SewerGang.  They were both arrested on charges of smuggling contraband in 2005, but later released.  DaBestPigMaster was also accused of using his relative's charity to collect large sums of cash, a practice that both SewerGang and DaBestPigMaster have been accused of.   DaBestPigMaster has always denied involvement with SewerGang and has tried to sell the charges as "personal vendetta" and "attempted extortion".  He has also claimed that "SewerGang was an evil organization" that "had me in its crosshairs".  The author of this article, however, believes that DaBestPigMaster was behind the Bookshelf bombing.  He mentions a number of meetings he had with the men, including a meeting where they discussed bombing Bookshelf Industries and "attempting to have the headquarters bombed" (Source: http://rabbithead.blogspot.com/2015/09/bookstore-bombing.html).  His article also describes the effect that Bookshelf Industries had on him and his family:  
 "What I'll never understand is why these guys who I thought were my friends and neighbors, were so hostile and hateful towards me."
-- Deword Eberhard, Bookshelf Industries' former employee
+\- Deword Eberhard, Bookshelf Industries' former employee
 "Everything that I have and love about the world is gone."
-- Joseph Bowyer, Bookshelf Industries' former employee
+\- Joseph Bowyer, Bookshelf Industries' former employee
 "I don't know why we have to take the risks with our lives to protect the businesses that we support."
-- Amanda Gloster, Bookshelf Industries' former employee
+\- Amanda Gloster, Bookshelf Industries' former employee
 "For us it's about making sure the business doesn't get hurt."
-- Dan Datsenko, Bookshelf Industries' former employee
+\- Dan Datsenko, Bookshelf Industries' former employee
 "The only reason we are here is because we love it so much. If we weren't here, we wouldn't be at the table."
-- Elizabeth Alvarez, Bookshelf Industries' former employee
+\- Elizabeth Alvarez, Bookshelf Industries' former employee
 "These are bad, bad people. They took the lives of the people who love the business of Bookshelf and it's very hard for me to even begin to tell you what this was about and why. The bookstore was our life and we are in so much pain and heartbreak."
-- Vickie Smith, Bookshelf Industries' former employee
+\- Vickie Smith, Bookshelf Industries' former employee
 "It was obvious the Bookshelf employees were not only at risk, but their families as well. ... I suspect that they knew the likelihood that their families would be hurt in this incident was extremely high. I suspect that they knew that these innocent families were caught in the middle of this act."
-- Dan Alvarez
+\- Dan Alvarez
 "They had been personally watching this," he said, "and they knew that the destruction of the books would have a devastating effect on their entire business."
-- Michael Edmonds, Bookshelf Industries' former employee
+\- Michael Edmonds, Bookshelf Industries' former employee
 "They felt that because they were involved in this enterprise, that their personal careers and families would be damaged, and that they had to do something. It's not that hard for them to understand. They feel that they have a moral obligation to do something."
-- Greg Johnson, Bookshelf Industries' former employee
+\- Greg Johnson, Bookshelf Industries' former employee
 "My father was still with us. He was born in the '60s, and he used to bring me to work every day, and he told me not to worry, it was only a couple of us. So it's like
