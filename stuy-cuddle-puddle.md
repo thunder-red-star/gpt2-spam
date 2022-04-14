@@ -1,3 +1,4 @@
+# 1
 Stuyvesant High School administrators discovered an illegal cuddle puddle of freshies and sophomores on the fourth floor of the ten-story building.
 
 According to a post on the school's Facebook page, this was the third time this year that cuddling had been prohibited in the building.
@@ -23,3 +24,27 @@ Students in the building say that while cuddling is legal, it's not exactly thei
 Stuyvesant High School is currently on summer break.
 
 Stuyvesant High School Facebook
+# 2
+Stuyvesant High School administrators discovered an illegal cuddle puddle of freshies and sophomores on the fourth floor of the ten-story building.
+
+Upon inspecting the building, according to the New York Post, the district found the makeshift stasis chamber filled with twosomes, and that students were cuddling on the floors of their rooms.
+
+District administrators decided to close the school down and cuddle on the hallway floors instead.
+
+The school's principal, James Moore, said it was just a temporary solution, as no classrooms were being used, and that the school administration had never even considered the idea of a cuddle puddle.
+
+"We were really just trying to give our students some space and time to think about the weekend," he said. "That way they're not making that big a deal of it."
+
+"The last thing we want is a meltdown. We want them to have a good time," Moore added.
+
+The school was still temporarily closed, but due to no longer being in use, the fourth-floor cuddle puddle is now all but useless.
+
+According to an incident report, students found the cuddle puddle after students were being evacuated from the school.
+
+"During the evacuation, I saw what looked like a puddle of this fresh milk and sugar on the ground," the report reads. "I called the nurse to come over and check it out. When she came over, she found it was a cuddle puddle. I told her to keep the door closed, and she said she could make it disappear if I would get out of the room."
+
+After exiting the room, students said that the school was much quieter than usual.
+
+"It's not like there was just a whole lot of noise," a student told the New York Post. "I think it helped us have some quiet."
+
+Follow Warner Todd Huston on Twitter @warnerthuston or email the author at igcolonel@hotmail.com.
